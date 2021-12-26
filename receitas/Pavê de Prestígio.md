@@ -3,22 +3,15 @@
 ## _Ingredientes_
 
 - 2 pacotes de bolo pronto de chocolate ( tipo Pulmann)
-
 - 1 copo de guaraná
-
 - 2 latas de leite condensado
-
 - 100 g de coco ralado
-
 - 2 colheres (sopa) de margarina
-
 - 200 g de chocolate meio amargo
-
 - 1 lata de creme de leite com soro
-
 - coco ralado e raspas de chocolate para decorar
 
-  
+
 
 ## _Modo de Preparo_
 
