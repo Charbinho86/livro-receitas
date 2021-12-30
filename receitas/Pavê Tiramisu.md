@@ -30,4 +30,6 @@ Bata no liquidificador metade do café, o leite e o chocolate em pó até dissol
 
 
 
+###  _Informações adicionais_
+
 **Dica:** retire o sorvete com 15 minutos de antecedência para facilitar na hora de misturar.
